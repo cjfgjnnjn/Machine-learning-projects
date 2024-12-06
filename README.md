@@ -29,4 +29,4 @@ Happy exploring and learning in the world of machine learning! If you have any q
 [For more amazing projecs visit: pofoavijit.super.site]
 [avijitsingh2473@gmail.com]
 
-Last updated: [5-08-2023(Saturday)]
+Last updated: [06-12-2024]
